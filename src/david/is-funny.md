@@ -1,5 +1,0 @@
-# David
-
-## Miller
-
-### Plays WOW
